@@ -1,6 +1,6 @@
 # Bienvenue sur TerrainConfus.com
 
-Bienvenue sur **TerrainConfus.com**, votre destination idéale pour plonger dans l'univers fascinant des **terrains confus**. Sur **terrainsconfus.com**, nous explorons les mystères et les beautés cachées des **terrains** les plus énigmatiques.
+Bienvenue sur **TerrainConfus.com**, votre destination idéale pour plonger dans l'univers fascinant des **terrains confus**. Sur **terrainconfus.com**, nous explorons les mystères et les beautés cachées des **terrains** les plus énigmatiques.
 
 ## À propos de TerrainConfus.com
 
@@ -8,7 +8,7 @@ Sur **TerrainConfus.com**, nous pensons que chaque **terrain confus** a une hist
 
 ## Pourquoi choisir TerrainConfus.com ?
 
-**TerrainConfus.com** n'est pas seulement un site web, c'est une communauté de passionnés de **terrains confus**. Voici quelques raisons de visiter **terrainsconfus.com** :
+**TerrainConfus.com** n'est pas seulement un site web, c'est une communauté de passionnés de **terrains confus**. Voici quelques raisons de visiter **terrainconfus.com** :
 
 - **Articles Variés** : Des contenus approfondis sur une multitude de **terrains confus** à travers le monde.
 - **Photos Étonnantes** : Des galeries qui vous feront découvrir des **terrains** surprenants et inédits.
